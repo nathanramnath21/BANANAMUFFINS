@@ -1,4 +1,4 @@
-# EGGLESSBANANAMUFFINS (no eggs) Rececipe
+# EGGLESSBANANAMUFFINS (no eggs) Recipe
 
 step 1:
 Preheat oven to 350 degrees F (175 degrees C). Coat muffin pans with non-stick spray, or use paper liners. Sift together the flour, baking powder, baking soda, and salt; set aside.
